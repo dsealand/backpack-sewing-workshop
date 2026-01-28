@@ -237,6 +237,7 @@ Common issues and solutions:
 - [Mountain Flyer pattern](https://www.bagbuff.com/products/34l-mountain-flyer-ultralight-backpack-pattern)
 - [apocalypse equipment](https://apocalypse-equipment.com/products/sac-ski)
 - [leif bergstrom](https://www.instagram.com/p/DTBtV7ekptZ/?img_index=1)
+- [alpine luddites](https://alpine-luddites.myshopify.com/collections/backpacks/products/alpine-machine-roll-top-40l-50l-60l)
 - [flowers](https://www.pinterest.com/pin/63824519714434410/feedback/?invite_code=0a093c3de8dd4282a9e26302e7f3b360&sender_id=63824657127631848)
 
 ### Fabric Sourcing
